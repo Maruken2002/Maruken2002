@@ -1,4 +1,4 @@
-# 東京都市大学付属中高 マルチメディア研究部
+![ロゴ](https://github.com/Maruken2002/logo/blob/main/ititle700x90.png?raw=true)
 ## プロフィール
 こんにちは。こちらは東京都市大学付属中高マルチメディア研究部の公式アカウントです。
 
