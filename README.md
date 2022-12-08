@@ -1,4 +1,4 @@
-![ロゴ](https://raw.githubusercontent.com/Maruken2002/logo/main/ititle700x90.png?token=AT6TK4QGTRKJU3BBEKUF55TBUMRUE)
+![ロゴ](https://yt3.ggpht.com/Yl-AZCoJZ5c38geN91MS86CIcIGiFiELEYeqg0FjKR96d54rPlRQB-zYTILExIIzj2MiEFLBsg=w2120-fcrop64=1,00005a57ffffa5a8-k-c0xffffffff-no-nd-rj)
 ## プロフィール
 こんにちは。こちらは東京都市大学付属中高マルチメディア研究部の公式アカウントです。
 
